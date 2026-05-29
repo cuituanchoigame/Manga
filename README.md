@@ -16,8 +16,6 @@
 
 👤 **Tác giả:** Asaga Iori | **Thể loại:** Drama, Ecchi, Romance, Shounen, Tragedy
 
-**Tên khác:** さっちゃん、僕は。 | Sa-chan, Boku wa.
-
 **ĐÁNH GIÁ:** 💔 Chữa lành ‼️NTR Alert 🤌 Approved 
 
 ---
