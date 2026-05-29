@@ -2,7 +2,7 @@
 
 ## Inu to Kuzu - Chó Và Cặn Bã - 犬と屑 | END Chương 42 + extra
 
-![](https://scontent.fsgn5-9.fna.fbcdn.net/v/t1.6435-9/202231814_874733420060994_1216497450847840866_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=f727a1&_nc_ohc=BcvG1IN8uPoQ7kNvwFEF1hM&_nc_oc=AdqwB5YDkmn9hPV7pZo6u11XZ6rmx0mmK7XELe_4lignuprRUZZYG4Y7w3eayImP9mQ&_nc_zt=23&_nc_ht=scontent.fsgn5-9.fna&_nc_gid=Znrs-a7dc49Yg7hJknrYoA&_nc_ss=7b289&oh=00_Af7LaPG1IyBhgkEfE9dDhu5cYP5Iht1xWEXtQdA5-IHuCg&oe=6A40F964)
+![](https://scontent.fsgn5-10.fna.fbcdn.net/v/t1.6435-9/204908301_874734126727590_8437455029289907199_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=f727a1&_nc_ohc=DbF_KKato0wQ7kNvwETkhGi&_nc_oc=Adr0D74t9bXwgeJ_f7ozyttmdpRav83rfeOYBbRDYPYadpkbE3XNofa4SlJT70XccT0&_nc_zt=23&_nc_ht=scontent.fsgn5-10.fna&_nc_gid=mVMuQB-Zxuejby0pyut0iw&_nc_ss=7b2a8&oh=00_Af5sFhxo-8xCGJvqR5yj8FIsAUhIVxGJ-fleepeQ7PiFiA&oe=6A40ED51)
 
 👤 **Tác giả:** Asaga Iori | **Thể loại:** Drama, Romance, Seinen
 
