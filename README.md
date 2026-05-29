@@ -6,7 +6,7 @@
 
 👤 **Tác giả:** Asaga Iori | **Thể loại:** Drama, Romance, Seinen
 
-👉 **Vừa xem vừa chửi ở đây:** [https://www.facebook.com/media/set/?set=a.874735983394071&s=15](https://www.facebook.com/media/set/?set=a.874735983394071)
+👉 **Vừa xem vừa chửi ở đây:** [https://www.facebook.com/media/set/?set=a.874735983394071](https://www.facebook.com/media/set/?set=a.874735983394071)
 
 **ĐÁNH GIÁ CÁ NHÂN:** 👁️ Must Watch 🙌 Tuyệt đối điện ảnh 🏢 11/9 chuyên gia khuyên dùng 🤌 Approved
 
