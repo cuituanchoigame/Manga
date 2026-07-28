@@ -2,7 +2,7 @@
 
 ## Inu to Kuzu - Chó Và Cặn Bã - 犬と屑 | END Chương 42 + extra
 
-![](https://scontent.fsgn5-10.fna.fbcdn.net/v/t1.6435-9/204908301_874734126727590_8437455029289907199_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=f727a1&_nc_ohc=DbF_KKato0wQ7kNvwETkhGi&_nc_oc=Adr0D74t9bXwgeJ_f7ozyttmdpRav83rfeOYBbRDYPYadpkbE3XNofa4SlJT70XccT0&_nc_zt=23&_nc_ht=scontent.fsgn5-10.fna&_nc_gid=mVMuQB-Zxuejby0pyut0iw&_nc_ss=7b2a8&oh=00_Af5sFhxo-8xCGJvqR5yj8FIsAUhIVxGJ-fleepeQ7PiFiA&oe=6A40ED51)
+![](https://scontent.fsgn5-13.fna.fbcdn.net/v/t1.6435-9/202231814_874733420060994_1216497450847840866_n.jpg?stp=dst-jpg_tt6&cstp=mx1424x600&ctp=s1424x600&_nc_cat=105&_nc_map=urlgen_bucketless&ccb=1-7&_nc_sid=f727a1&_nc_ohc=rzegakVyYmcQ7kNvwEDE3yB&_nc_oc=Adpf24_THhoaaZwAUuHWgvX7svEm-Dk3mXtlY7rn0g7diNGdp77u0Wvqr_dW9DZCUP4&_nc_zt=23&_nc_ht=scontent.fsgn5-13.fna&_nc_gid=Knap_UQf2avGE-tSaqgnHw&_nc_ss=7b289&oh=00_AQCW2VOshDrvLMkbKRfLNgnyk7xYsyXge0DtQaMZN_O8aQ&oe=6A8FA2E4)
 
 👤 **Tác giả:** Asaga Iori | **Thể loại:** Drama, Romance, Seinen
 
@@ -12,7 +12,7 @@
 
 ## Dear Sa-chan -  Sa-chan, Boku wa - さっちゃん、僕は。| END
 
-![](https://scontent.fsgn5-13.fna.fbcdn.net/v/t1.6435-9/89117531_568443130690026_2581446486457843712_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=cf85f3&_nc_ohc=7SZoNOmayVQQ7kNvwFz5b9i&_nc_oc=AdrINEHw6MrUTgatcgr0m2wITGuLIQe4J5dm5rtlmGo3Q8y3K4MLjz7ANpUFcVVavo8&_nc_zt=23&_nc_ht=scontent.fsgn5-13.fna&_nc_gid=IUfWsX-LUzr9RTBUpBuOfA&_nc_ss=7b2a8&oh=00_Af6shsRcQXsv1mHOx15B9bEAjqdI1p9_aW2N5nAhAzAdmA&oe=6A40FD50)
+![](https://scontent.fsgn5-6.fna.fbcdn.net/v/t1.6435-9/89117531_568443130690026_2581446486457843712_n.jpg?stp=dst-jpg_tt6&cstp=mx1618x1000&ctp=s1618x1000&_nc_cat=101&_nc_map=urlgen_bucketless&ccb=1-7&_nc_sid=cf85f3&_nc_ohc=oRWjsm_d494Q7kNvwE9AR0o&_nc_oc=AdpR_U8NKW3TTSmFTmtbbPSonlpu7uukBbUhNbi8ThyRGtxpY1Thh1V839jN2jiDtGQ&_nc_zt=23&_nc_ht=scontent.fsgn5-6.fna&_nc_gid=Qca5MMGgcgp0vGLG0ebB2Q&_nc_ss=7b2a8&oh=00_AQBjntN8ATjjPXKBmrZYokWcICbbDIj9LkCTehsIziJlSg&oe=6A8FA6D0)
 
 👤 **Tác giả:** Asaga Iori | **Thể loại:** Drama, Ecchi, Romance, Shounen, Tragedy
 
